@@ -1,3 +1,6 @@
-# asupan link
+# asupan link video viral bandar membara bergetar
 asupan link doodstream
-Demo: https://asupan.link
+https://asupan.link
+
+# Link original
+https://cek.onl/asupan
